@@ -10,6 +10,6 @@
 
 ### [CSC368 Technical Writing](https://github.com/WilcyWilson/CSIT-All)
 
-### [CSC370 E-commerce](https://github.com/WilcyWilson/CSIT-All)
+### [CSC370 E-commerce (Elective)](https://github.com/WilcyWilson/CSIT-All)
 
 
