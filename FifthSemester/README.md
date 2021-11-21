@@ -10,6 +10,6 @@
 
 ### [CSC318 Web Technology](https://github.com/WilcyWilson/CSIT-All)
 
-### [CSC321 Image Processing](https://github.com/WilcyWilson/CSIT-All)
+### [CSC321 Image Processing (Elective)](https://github.com/WilcyWilson/CSIT-All)
 
 
