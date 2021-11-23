@@ -1,11 +1,11 @@
 ## Mathematics I
 
-### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqcaNq4ZNlBPpa_jD6kScG0BWi_PgB6EjeBs5BD-717rpA)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EtvlZIzbavZBlolzocFjgVAB4qauu-xBGquVNi5X0yjQ-g?e=r6QCn2)
 
-### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoW-3gMqPsRJpza4fNzxk7YBSMjuXLisVM2V8WE04X7Kog)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EnP01FhVKSNLst0FEiZzEzoB_avifZlkfwA_eb1RpzNUCQ?e=SNTEdN)
 
-### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Eh3-SuciZbxKsW452xYbCtgBhq1gxH3aaJX6MGv_7oCvMQ)
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Evw1MK0hL_dOrlLO0k5yZ2EBGzQfYPisaJAwHG1at3VMEg?e=0HvgkC)
  
-### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ep0p30Fu1-tAnrcm87nanz8Bnm5IwS9-jFvSTUKck_IKWQ)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EvoLYF_ns3VKk-pCaD_I1DUBrL7By6GivvDT0VhEVt7s_Q?e=zZ0bPq)
 
-### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqMuZIWfHeNJrz6awgVoT0IBPr6CLLpNww4zLpRqYShzaA)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EsYGShxX59dIpgRpuNZXHGUBM1tnzodd3X3hVxEQMzDHsw?e=5daQ3a)
