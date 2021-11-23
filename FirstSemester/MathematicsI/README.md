@@ -1,6 +1,6 @@
 ## Mathematics I
 
-### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EtvlZIzbavZBlolzocFjgVAB4qauu-xBGquVNi5X0yjQ-g?e=r6QCn2)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Evtf2l8NfC1FuTDbdFV4ju4BEabGmWonjgkPx-b1OShAQA?e=jSqdtW)
 
 - ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EnP01FhVKSNLst0FEiZzEzoB_avifZlkfwA_eb1RpzNUCQ?e=SNTEdN)
 

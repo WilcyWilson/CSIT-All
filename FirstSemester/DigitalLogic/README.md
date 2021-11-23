@@ -1,11 +1,13 @@
 ## Digital Logic
 
-### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqcaNq4ZNlBPpa_jD6kScG0BWi_PgB6EjeBs5BD-717rpA)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EvD-g3u33bVJt4dRBl96K6gBlTSgppmn6axRbffIgZL59Q?e=65CNhY)
 
-### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoW-3gMqPsRJpza4fNzxk7YBSMjuXLisVM2V8WE04X7Kog)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EgVxLTCa8y1Oh2t2lqN6iVUBecja1MorSZRysf_uBBYe9w?e=DRzsba)
 
-### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Eh3-SuciZbxKsW452xYbCtgBhq1gxH3aaJX6MGv_7oCvMQ)
+- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EpIYmcEqMKdNvGziHu4vv0wBtKURD9yKbO3ibH3gERcvQQ?e=kyL1rL)
+
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EsXY37e_luBAt3PKqUlI3KkBk0yYlTmLUQ2_V7cfVev2Tg?e=turZzh)
  
-### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ep0p30Fu1-tAnrcm87nanz8Bnm5IwS9-jFvSTUKck_IKWQ)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoYrcLzX7rFPm2EXHHnx4IUB1GIldW9GAupzYwio1jRczQ?e=9fDRfq)
 
-### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqMuZIWfHeNJrz6awgVoT0IBPr6CLLpNww4zLpRqYShzaA)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EnEHSWKGDFZEttAA7SXElacB3Djv1CKXYkhlavoTKfBoJQ?e=kWYA58)

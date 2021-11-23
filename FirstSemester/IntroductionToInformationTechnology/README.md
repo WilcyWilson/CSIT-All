@@ -1,11 +1,13 @@
 ## Introduction To Information Technology
 
-### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqcaNq4ZNlBPpa_jD6kScG0BWi_PgB6EjeBs5BD-717rpA)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/En7uBTOV4_ZJtJ5HmdjnnHUB_yGUEOLFv3ODj6EH9eViuQ?e=8W1hgx)
 
-### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoW-3gMqPsRJpza4fNzxk7YBSMjuXLisVM2V8WE04X7Kog)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EgUC-zu0-TFIn8rpmNWdaz4BVS7m7HFEAQrej94b84dslw?e=AURLaH)
 
-### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Eh3-SuciZbxKsW452xYbCtgBhq1gxH3aaJX6MGv_7oCvMQ)
+- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EpvMRVfPXBlHky7_fw3dlmkBNVRCkdj91-rY0snHb0-hRw?e=GPxnXX)
+
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqaCrjnokAROhoMe88Sx6pIBdTu0dgv5vwprKg6TeJs-Tw?e=HmMJqT)
  
-### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ep0p30Fu1-tAnrcm87nanz8Bnm5IwS9-jFvSTUKck_IKWQ)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Em-PBEVlu3NIsRwaOnKvTh8BAjjkdDht5ISDkP1aIR1KPw?e=bLMRPf)
 
-### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqMuZIWfHeNJrz6awgVoT0IBPr6CLLpNww4zLpRqYShzaA)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Et1v_Pl4QaNKuN0Rt3w-VQABRniBTRfFKs1RjxCEZCsnHw?e=wDnfiS)
