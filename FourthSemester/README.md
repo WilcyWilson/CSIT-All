@@ -1,4 +1,4 @@
-## Choose a Subject
+## Fourth Semester
 
 ### [CSC257 Theory of Computation](https://github.com/WilcyWilson/CSIT-All)
 

@@ -1,4 +1,4 @@
-## Click below to view and download 
+## C Programming
 
 ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqcaNq4ZNlBPpa_jD6kScG0BWi_PgB6EjeBs5BD-717rpA)
 

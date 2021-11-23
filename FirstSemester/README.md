@@ -1,4 +1,4 @@
-## Choose a Subject
+## First Semester
 
 ### [CSC109 Introduction to Information Technology](https://github.com/WilcyWilson/CSIT-All/tree/master/FirstSemester/IntroductionToInformationTechnology#readme)
 

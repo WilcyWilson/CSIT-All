@@ -1,4 +1,4 @@
-## Choose a Subject
+## Fifth Semester
 
 ### [CSC314 Design and Analysis of Algorithms](https://github.com/WilcyWilson/CSIT-All)
 

@@ -1,4 +1,4 @@
-## Choose a Subject
+## Sixth Semester
 
 ### [CSC364 Software Engineering](https://github.com/WilcyWilson/CSIT-All)
 

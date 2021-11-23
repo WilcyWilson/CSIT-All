@@ -1,4 +1,4 @@
-## Choose a Subject
+## Third Semester
 
 ### [CSC206 Data Structure and Algorithms](https://github.com/WilcyWilson/CSIT-All)
 

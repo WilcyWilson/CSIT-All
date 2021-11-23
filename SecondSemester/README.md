@@ -1,4 +1,4 @@
-## Choose a Subject
+## Second Semester
 
 ### [CSC160 Discrete Structure](https://github.com/WilcyWilson/CSIT-All)
 
