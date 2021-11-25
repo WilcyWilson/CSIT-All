@@ -8,7 +8,7 @@
 
 - ### [CSC162 Microprocessor](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester/Microprocessor#readme)
 
-- ### [MTH163 Mathematics II](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester/Mathematics#readme)
+- ### [MTH163 Mathematics II](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester/MathematicsII#readme)
 
 - ### [STA164 Statistics I](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester/StatisticsI#readme)
 
