@@ -4,7 +4,7 @@
 
 - ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Egf1EIivh8tHvyMfgBCdDqUBMIZGjI2YSRobzggoYXYiww?e=ArflpP)
 
-- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoW-3gMqPsRJpza4fNzxk7YBSMjuXLisVM2V8WE04X7Kog)
+- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ehhe6G4bulhEtyNg_cY4Qo0BmM5J1OygGAWozswnjb1ErA?e=fyeB9L)
 
 - ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Es5pDV3rdS5PqUTG5ZdeYhwBDuC-Or8BN0wGzs0Be_ftEw?e=YlvIKG)
  
