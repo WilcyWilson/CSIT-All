@@ -1,6 +1,6 @@
 ## Second Semester
 
-### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Er_9SZqlMqhHtyJOBYjvOsgBqk6sbJro7_4lUkwhwPXypQ?e=5Tdtul)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EnhDaM3JQu9OvG1LVGd0SoQBEOIyZRu7-5luKlSIroYndg?e=jwLvKb)
 
 - ### [CSC160 Discrete Structure](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester/DiscreteStructure#readme)
 
