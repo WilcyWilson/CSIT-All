@@ -1,17 +1,19 @@
 ## Choose a Semester
 
-### [1st Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/FirstSemester#readme)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EtuGzA90ltBImG2sfm_FPPMBhYcofdWn7YiWYAy_oURJSg?e=NqYno0)
 
-### [2nd Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester#readme)
+- ### [1st Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/FirstSemester#readme)
 
-### [3rd Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester#readme)
+- ### [2nd Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/SecondSemester#readme)
 
-### [4th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/FourthSemester#readme)
+- ### [3rd Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester#readme)
 
-### [5th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/FifthSemester#readme)
+- ### [4th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/FourthSemester#readme)
 
-### [6th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/SixthSemester#readme)
+- ### [5th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/FifthSemester#readme)
 
-### [7th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/SeventhSemester#readme)
+- ### [6th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/SixthSemester#readme)
 
-### [8th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester#readme)
+- ### [7th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/SeventhSemester#readme)
+
+- ### [8th Semester](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester#readme)
