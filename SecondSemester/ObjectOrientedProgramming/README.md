@@ -1,13 +1,13 @@
 ## Object Oriented Programming
 
-### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EuN6xzTsu3pEtDMzokN3R4sBrISK2etygldx1FHLUI0Bpg?e=hJsl89)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EvBDhmELY5hBuO4WaN6uPDEBvhy3R8nPoCKbIUpEHkP0eg?e=ri95uX)
 
-- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqcaNq4ZNlBPpa_jD6kScG0BWi_PgB6EjeBs5BD-717rpA)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EvXm5XL4hRlOthBSlKDWJCQBmg8fl40hzlB9K0UYJc-0KQ?e=pdX9Q4)
 
-- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoW-3gMqPsRJpza4fNzxk7YBSMjuXLisVM2V8WE04X7Kog)
+- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/El_FkF6Lvy5DkLrDBFyEtPoBOMmzDBzWGBZv_f5GewrHIA?e=QZh8WR)
 
-- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Eh3-SuciZbxKsW452xYbCtgBhq1gxH3aaJX6MGv_7oCvMQ)
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqfpE7mBP5dCpsPk-SJt3_ABs6VE2-QiAwo8Sgkbogh-PA?e=WWgxQ4)
  
-- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ep0p30Fu1-tAnrcm87nanz8Bnm5IwS9-jFvSTUKck_IKWQ)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EjlqnNriJGZJiXUfr4K43hsBPMo9qiHRK4WqGI7GkmPS6g?e=zJuaLP)
 
-- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqMuZIWfHeNJrz6awgVoT0IBPr6CLLpNww4zLpRqYShzaA)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Et-oQ7JI9jVOvNfz5eWlFMABjRI9Wi_uQh7mcieVoIXoAg?e=dNZo1T)
