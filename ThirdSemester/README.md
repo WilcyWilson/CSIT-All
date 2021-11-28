@@ -8,7 +8,7 @@
 
 - ### [CSC208 Computer Architecture](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/ComputerArchitecture#readme)
 
-- ### [CSC209 Computer Graphics](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/ComputerGraphicsm#readme)
+- ### [CSC209 Computer Graphics](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/ComputerGraphics#readme)
 
 - ### [STA210 Statistics II](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/StatisticsII#readme)
 
