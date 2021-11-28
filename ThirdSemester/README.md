@@ -2,7 +2,7 @@
 
 ### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EkYttxp68XNHkNpx17B9XkoBoSLFMl-WM9yf4oj8RK8V3w?e=d73VSI)
 
-- ### [CSC206 Data Structure and Algorithms](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/DiscreteStructureAndAlgorithm#readme)
+- ### [CSC206 Data Structure and Algorithms](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/DiscreteStructureAndAlgorithms#readme)
 
 - ### [CSC207 Numerical Method](https://github.com/WilcyWilson/CSIT-All/tree/master/ThirdSemester/NumericalMethod#readme)
 
