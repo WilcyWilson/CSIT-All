@@ -1,4 +1,4 @@
-## SystemAnalysisAndDesign
+## System Analysis And Design
 
 ### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EgqByNF28NtDipl5cUkiNpgBmAy88dszShV9nmKbcEhU3g?e=hDf4EX)
 
