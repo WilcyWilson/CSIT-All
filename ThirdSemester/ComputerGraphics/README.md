@@ -10,4 +10,4 @@
  
 - ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqoXzTUTZ-RNj76NNnMDkAEBEEFFCD_OQPej4aNkRZzq2A?e=FMAqbQ)
 
-- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EuebxuItsC9CjLM31LQkuWMB2xViS0wkZKVxgCs-fvm29A?e=A9odb4)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EkDTTnBfx0ZMqnNp32f2BNsBzE0l4mIh1tHPMBfFpSkl3g?e=gW3sms)
