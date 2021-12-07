@@ -1,6 +1,6 @@
 ## Sixth Semester
 
-### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Er_9SZqlMqhHtyJOBYjvOsgBqk6sbJro7_4lUkwhwPXypQ?e=5Tdtul)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ek8dAb-dj-VNjNSyLGwkhNEBS_onJvxV3GOVcZdicmRSWA?e=MxwO7t)
 
 - ### [CSC364 Software Engineering](https://github.com/WilcyWilson/CSIT-All)
 
