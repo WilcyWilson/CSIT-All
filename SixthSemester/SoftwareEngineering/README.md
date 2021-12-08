@@ -8,6 +8,6 @@
 
 - ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/ErYliidBkWBEo6oHOAD_oUsBb5Z-X6X9HhPTsJyDvUwNoA?e=AkO8q1)
  
-- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/ErYliidBkWBEo6oHOAD_oUsBb5Z-X6X9HhPTsJyDvUwNoA?e=AkO8q1)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ejh5d4MlHVZGur8gtBamU48BxuI_IkmJK6q_-VSGi0JXRw?e=ixlddH)
 
 - ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Elv52JK5ge1FloRnxCYYdN0ByEBu0x4EIPet_TXmjQAcxw?e=lceNom)
