@@ -1,13 +1,11 @@
 ## Technical Writing
 
-### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Enfuf5OuXFdFiQc-5ZWc5pUBD0wn-ccn9in4wpSsNxLW_A?e=rI0xxx)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EmupOwbzk9ZIuxCQjHrAMEQBGI54vwwfPzqyzVCJOPkrQg?e=BIFnNu)
 
-- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoKHZmqm9D5JhNoypgEMMusB9DP44wuYRi2f6GuvKZu8DQ?e=WK5Ush)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EiRz1YVctTlEkbhwqaanaGIBfI9Z45puDtTxO-HViNFBKA?e=ubvRwc)
 
-- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EkA77FzkJCtDswo2TYxNit4BwwovQbwu5o9QBOKzDkpzeQ?e=8LPFXQ)
-
-- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EkLNNjDP7D9IvAPjn6m4B9UBPVF7Xg32eAbUdiNN0EwxFQ?e=5htqFo)
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ep_iyw49w5xIip0M-y8BMrYBREeSfw9UInRE4LtHIuUtZA?e=bLfQIP)
  
-- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EhJWdV7mB4NIqtdpcTyIqOYB5EUPSjGn2AVFYQT1LWtUsg?e=iGey4N)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EjdU9DOU1S1HjndjRKpOKzUBjZuiLLSoeK9IBNSeiObeNw?e=THe9ng)
 
-- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoNN34t_XvFBg966RLqhrf8B59vHn7U7H4ii4FQ2oQxTzw?e=v0fnM6)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EiIhwX3mw7pGpcu0XJlheE4Bhdj06x1tQGpHRWslLHDYKQ?e=cbgTcl)
