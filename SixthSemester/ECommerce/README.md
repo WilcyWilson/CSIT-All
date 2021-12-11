@@ -1,13 +1,13 @@
 ## E-Commerce
 
-### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Enfuf5OuXFdFiQc-5ZWc5pUBD0wn-ccn9in4wpSsNxLW_A?e=rI0xxx)
+### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EiBwQOc05uRAq5SfmH1O63EBcqpWHUdpWHdwlP2df1VFSg?e=RTLlUH)
 
-- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoKHZmqm9D5JhNoypgEMMusB9DP44wuYRi2f6GuvKZu8DQ?e=WK5Ush)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Ep1csZnewiJCo1cqyoJRr0cB9kq0VdLS3nzmKiYWeiEbAw?e=OLiB6y)
 
-- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EkA77FzkJCtDswo2TYxNit4BwwovQbwu5o9QBOKzDkpzeQ?e=8LPFXQ)
+- ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/Eojfk652BkxJpphfM10NdRsBPHiJ8L4zHIBWdG6zpKZyqA?e=2cC7xl)
 
-- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EkLNNjDP7D9IvAPjn6m4B9UBPVF7Xg32eAbUdiNN0EwxFQ?e=5htqFo)
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EpNC23mkb99ImwkEUkfLlqYBwsmlXNJbupW6SN7Na1IrnA?e=AthAXb)
  
-- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EhJWdV7mB4NIqtdpcTyIqOYB5EUPSjGn2AVFYQT1LWtUsg?e=iGey4N)
+- ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EujRITDCpxFOu210yyW-cmQBJK7FzExWlwV0LBDeDcoTQQ?e=doCLmU)
 
-- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoNN34t_XvFBg966RLqhrf8B59vHn7U7H4ii4FQ2oQxTzw?e=v0fnM6)
+- ### [Questions](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EitMgOe4aLRAjaqGOLhfYl4BZB8EpWJrmYHk-BDC7td9BA?e=MeA16X)
