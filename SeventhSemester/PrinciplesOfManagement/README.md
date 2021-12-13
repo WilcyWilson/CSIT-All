@@ -2,7 +2,7 @@
 
 ### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EgGVjkqh56pHgw3DnbplDG4Bfbg50CuKyGaLOQ7F75KlMA?e=0fS7GD)
 
-- ### [Syllabus](hhttps://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EgZGC7x5a39Co9HZlcIyXlUBwMjpq97rW78OJskd4Fxlwg?e=Ayjh6C)
+- ### [Syllabus](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EgZGC7x5a39Co9HZlcIyXlUBwMjpq97rW78OJskd4Fxlwg?e=Ayjh6C)
 
 - ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EiZCqodLR95PpOvDaOmKklYB-EOGRqgO1HQshW7Yos_scw?e=4ke2py)
 
