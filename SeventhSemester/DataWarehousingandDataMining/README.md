@@ -1,4 +1,4 @@
-## Dataware Housing and Data Mining
+## Data Warehousing and Data Mining
 
 ### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EsnPjlZqPWFLsMVc8V6egHIBfoCeEXplLzrVt5s2D3YGLw)
 
