@@ -1,6 +1,6 @@
 ## Choose a Semester
 
-### [Important Links for Bsc. CSIT students](https://github.com/WilcyWilson/CSIT-All/tree/master/ImportantLinks#readme)
+### [Important Links for all Bsc. CSIT students](https://github.com/WilcyWilson/CSIT-All/tree/master/ImportantLinks#readme)
 
 ### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EtuGzA90ltBImG2sfm_FPPMBhYcofdWn7YiWYAy_oURJSg?e=NqYno0)
 
