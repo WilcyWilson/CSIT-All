@@ -8,3 +8,6 @@
 - https://collegenote.pythonanywhere.com/courses/CSIT/all-courses/#gsc.tab=0
 - https://www.ioenotes.edu.np/
 - https://bsccsitblog.blogspot.com/
+
+#### Split,Combine,Compress and Convert PDFs
+- https://www.ilovepdf.com/
