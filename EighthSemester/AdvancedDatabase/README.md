@@ -6,7 +6,7 @@
 
 - ### [Practicals](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EsE_0vSP5gtPtImEHL-9xRIBn6vwUBNBdYWmjWu4yaI4pw?e=uFcbXr)
 
-- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoRjCYPqNjBEjBzCqCb4otIBULCqe59RdvLMdcSarJOD1A?e=2xG0cc)
+- ### [Books](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EqIOeGQiBHpDnPV1XPKhKAABWoGjBV49qZHcwWYIe81qRA)
  
 - ### [Notes](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EoRjCYPqNjBEjBzCqCb4otIBULCqe59RdvLMdcSarJOD1A?e=2xG0cc)
 
