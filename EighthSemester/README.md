@@ -4,7 +4,7 @@
 
 - ### [Advanced Database](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/AdvancedDatabase#readme)
 
-- ### [Decision Support System and Expert System](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/DecisionSuppportSystemAndExpertSystem#readme)
+- ### [Decision Support System and Expert System](https://github.com/WilcyWilson/CSIT-All/blob/master/EighthSemester/DecisionSupportSystemAndExpertSystem/README.md)
 
 - ### [Cloud Computing](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/CloudComputing#readme)
 
