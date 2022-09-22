@@ -4,13 +4,7 @@
 
 - ### [Advanced Database](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/AdvancedDatabase#readme)
 
-- ### [Internship](https://github.com/WilcyWilson/CSIT-All/tree/master/SeventhSemester/PrinciplesOfManagement#readme)
+- ### [Decision Support System and Expert System](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/DecisionSuppportSystemAndExpertSystem#readme)
 
-<!--
-- ### [Data Warehousing and Data Mining](https://github.com/WilcyWilson/CSIT-All/tree/master/SeventhSemester/DataWarehousingandDataMining#readme)
-
-- ### [Software Project Management](https://github.com/WilcyWilson/CSIT-All/tree/master/SeventhSemester/SoftwareProjectManagement#readme)
-
-- ### [Project Work](https://github.com/WilcyWilson/CSIT-All/tree/master/SeventhSemester/ProjectWork#readme)
--->
+- ### [Cloud Computing](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/CloudComputing#readme)
 
