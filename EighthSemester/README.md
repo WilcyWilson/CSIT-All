@@ -6,5 +6,5 @@
 
 - ### [Decision Support System and Expert System](https://github.com/WilcyWilson/CSIT-All/blob/master/EighthSemester/DecisionSupportSystemAndExpertSystem/README.md)
 
-- ### [Cloud Computing](https://github.com/WilcyWilson/CSIT-All/tree/master/EighthSemester/CloudComputing#readme)
+- ### [Cloud Computing](https://github.com/WilcyWilson/CSIT-All/blob/master/EighthSemester/CloudComputing/README.md)
 

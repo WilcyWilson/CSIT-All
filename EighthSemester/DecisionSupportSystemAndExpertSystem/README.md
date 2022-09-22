@@ -1,4 +1,4 @@
-## Advanced Database
+## Decision Support System and Expert System
 
 ### [Download All At Once](https://samriddhicollegeedunp-my.sharepoint.com/:f:/g/personal/wilsonshrestha_samriddhicollege_edu_np/EntaWU0QsxtKp3ujMTcQDUYBG_EHLQ_xyZVnroZS5zaudw?e=jqtFBG)
 
